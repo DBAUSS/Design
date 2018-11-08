@@ -8,3 +8,5 @@ All Gold Everything
 Royalty 
 
 Rich 
+
+Refined Classics
